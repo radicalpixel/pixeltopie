@@ -1,0 +1,2 @@
+dernier ajout, les images que j'avais fait lorsque j'était plus jeune (bien plus jeune... T\_T)
+Alors OUI ELLES SONT EN BITMAP ! quand j'aurais pas la flemme je les convertirais dans un format plus léger mais tout aussi pratique pour le graphisme.
